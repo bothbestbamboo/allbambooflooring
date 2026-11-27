@@ -9,8 +9,6 @@ draft: false
 image: "../../assets/images/gallery/woodpecker-bamboo-flooring-review-hero.jpg"
 ---
 
-![Woodpecker Bamboo Flooring brushed natural finish installed in a sunlit British living room](../../assets/images/gallery/woodpecker-bamboo-flooring-review-hero.jpg)
-
 Woodpecker Flooring, a family-run timber and bamboo specialist headquartered in Caerphilly, South Wales, has built a strong reputation across the United Kingdom for architectural wood and bamboo surfaces. Homeowners and interior designers outside Britain frequently ask whether Woodpecker Bamboo Flooring is worth importing to North America, Australia, or other international markets. While the planks offer high structural density, dependable click-lock milling, and refined European matt finishes, cross-border freight charges, import tariffs, and regional warranty exclusions rarely make individual residential imports financially practical.
 
 For buyers living in the UK or Ireland, Woodpecker remains one of the most reliable mid-to-upper-tier bamboo flooring brands available through independent showrooms. For overseas buyers, however, understanding how these boards are built—and how their landed cost compares against local equivalents—prevents costly procurement mistakes.
